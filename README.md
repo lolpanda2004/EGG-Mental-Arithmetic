@@ -2,5 +2,6 @@
 
 ## Demo
 
-Uploading Screen Recording - Made with FlexClip (1) (1).mp4…
+
+https://github.com/lolpanda2004/EGG-Mental-Arithmetic/assets/98698654/89794f66-4939-44aa-9e81-ce82b15ececa
 
